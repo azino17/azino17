@@ -67,7 +67,6 @@
 - 🔗 [Hackerrank Profile](https://www.hackerrank.com/profile/ayush_khambayat1)
 - 🟡 Rating: **Provisional**
 - 🌍 Global Rank: **24,290**
-- ⚔️ 
 
 ---
 
